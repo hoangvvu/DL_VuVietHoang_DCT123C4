@@ -1,3 +1,0 @@
-Vũ Việt Hoàng - 3123411108 - DCT123C4
-Nguyễn Hữu Anh Khoa - 3123411158 - DCT123C4
-Nguyễn Đức Tài - 3123411262 - DCT123C4
